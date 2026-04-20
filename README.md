@@ -29,12 +29,7 @@ husband, please follow him
 
 ✦•┈๑⋅⋯⋯⋅๑┈•✦
 
-fandoms: sth/sonic.exe/sonic originals, fnaf, deltarune, dandy's world, slopsaken, ppt, jjba, vocaloids, dod, grace, sinister minds, blocktales, phighting!, femtanyl, bad things, crashbox, tfc, and SO many more bro
 
-other stuff that needs to be said uh
-
-my name is Blaze but i usually go by Blaire and Razzmatazz
-
-uhhhhhhhhhh c+h at anytime unless the person i'm cuddling with says no
+c+h at anytime unless the person i'm cuddling with says no
 
 any ships EXCEPT the obvious ones
