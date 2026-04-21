@@ -9,7 +9,7 @@
 
 <p align="center"
 
-   ✦•┈๑⋅⋯⋯⋅๑┈•✦
+   ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/842ea326-be31-44bb-9117-ee34044d4963/dl1ld1s-16bfccf7-fcd3-490d-a20f-68350922daac.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi84NDJlYTMyNi1iZTMxLTQ0YmItOTExNy1lZTM0MDQ0ZDQ5NjMvZGwxbGQxcy0xNmJmY2NmNy1mY2QzLTQ5MGQtYTIwZi02ODM1MDkyMmRhYWMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.c4XrNOJxpxKd4VbsMognHJQcb-njFN-Rt-BWVykZJ9s)
 
