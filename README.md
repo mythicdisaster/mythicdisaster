@@ -33,3 +33,7 @@ husband, please follow him
 c+h at anytime unless the person i'm cuddling with says no
 
 any ships EXCEPT the obvious ones
+
+usually seen as this pony if i'm d3rlord3-ing
+
+<img width="200" height="224" alt="pony-town-&#39; &#39; Isn&#39;t it ironic_ ` `-boop-sit-blinking-padded-4x" src="https://github.com/user-attachments/assets/3898811d-a43c-49d3-8fc7-1cf9ea53ca4f" />
