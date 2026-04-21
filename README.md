@@ -27,7 +27,7 @@ husband, please follow him
 
 </p>
 
-✦•┈๑⋅⋯⋯⋅๑┈•✦
+𓂃˖˳·˖ ִֶָ ⋆ ☕︎ ⋆ ִֶָ˖·˳˖𓂃 ִֶָ
 
 
 c+h at anytime unless the person i'm cuddling with says no
