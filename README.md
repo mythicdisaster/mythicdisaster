@@ -15,7 +15,7 @@
 
 <p align="center" 
  
-  ˚₊‧꒰ა <a href="https://straw.page/draw?bio=d3rlord3andmyth">Strawp</a> ✦ <a href="https://guns.lol/blazetcsradio">Guns.lol</a> ✦ <a href="https://rewritersradio.atabook.org/">ATAbook</a> ໒꒱ ‧₊˚
+  ˚₊‧꒰ა <a href="https://straw.page/draw?bio=d3rlord3andmyth">Strawp</a> ✦ <a href="https://guns.lol/d3rlord3androsy">Guns.lol</a> ✦ <a href="https://rewritersradio.atabook.org/">ATAbook</a> ໒꒱ ‧₊˚
 
 <p align="center" 
 。𖥔　a real scourge all the same 𓂋 ᭡
